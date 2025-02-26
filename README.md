@@ -1,4 +1,4 @@
-- 🔭 I’m currently working on ... ✨_Nothing!_✨
+- 🔭 I’m currently working on ... ✨ _Nothing!_ ✨
 - 🌱 I’m currently learning ... Engineering and Grahic Design.
 -  💬 Ask me about ... How to become a Luminox Studio Tester!
 - 😄 Pronouns: ... he/him
